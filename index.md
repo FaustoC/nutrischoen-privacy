@@ -1,6 +1,6 @@
 # Informativa sulla privacy — NutriSchoen
 
-Ultimo aggiornamento: 6 ottobre 2026. Contatto: [INSERISCI EMAIL].
+Ultimo aggiornamento: 6 ottobre 2026. Contatto: fenicemaster@gmail.com
 
 ## In breve
 NutriSchoen **non raccoglie, non trasmette e non condivide alcun dato personale**.
